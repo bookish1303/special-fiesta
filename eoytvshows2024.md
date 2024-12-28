@@ -25,11 +25,11 @@ I am happy this got to see the light of day. Making essentially an extended homa
 A brilliant doctor with something off joins a hospital and saves lives in weird ways. The cases are somewhat interesting but these types of procedurals always take a backseat to the soap opera of doctors' personal lives. It means something to have Zachary Quinto play a gay doctor and have a relationship with another man that doesn't call attention to the non-heteronormative nature of that relationship, and to have it play subtly in the background of multiple episodes.
 
 ### The Day of the Jackal (Peacock)
-Anything with Eddie Redmayne is a joy to watch, primarily because the man's default state seems to be visibly suffering in silence. While the show makes me question whether The Jackal knows what he's doing at all, where the show demonstrates its chic and smooth operations, it is truly a pleasure to watch.
+Anything with Eddie Redmayne is a joy to watch, primarily because the man's default state seems to be visibly in pain. While the show makes me question whether the Jackal knows what he's doing at all, where the show demonstrates its smooth operations, it is truly a pleasure to watch.
 
-### Doctor Odyssey (NBC)
-### Delicious in Dungeon (Netflix)
 ### Elsbeth (Paramount+)
+The character has been softened to be able to function as a lead rather than a quirky recurring but Carrie Preston is in fine form here, sustaining both The Good Wife and its "high value viewer" appeal and the quirky fish-out-of-water detective that sustained USA for so long and had a recent resurgence. Like a higher budget Monk, as Elsbeth subtly (but genially) takes the piss of NYC society. Still love this.
+
 ### English Teacher (FX)
 ### Fallout (Amazon Prime)
 ### High Potential (CBS)
@@ -40,6 +40,9 @@ Anything with Eddie Redmayne is a joy to watch, primarily because the man's defa
 ### Sunny (AppleTV+)
 ### Terminator Zero (Netflix), Tomb Raider: The Legend of Lara Croft (Netflix)
 ### X-Men '97 (Disney+)
+
+### Doctor Odyssey (NBC)
+Introducing America to the threesome.
 
 ## Missed and Future TV Shows
 * Baby Reindeer (Netflix)
