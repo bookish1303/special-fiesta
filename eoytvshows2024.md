@@ -62,7 +62,7 @@ Harrison Ford continues to turn in some of the best work of his career.
 ### Abbott Elementary season 4 (ABC)
 Wild Wild West line dance.
 ### Last Week Tonight with John Oliver season 11 (Max)
-Millenial-targeted snark, the last of a dying breed of show.
+Millennial-targeted snark, the last of a dying breed of show.
 ### All Creatures Great and Small season 5 (BBC)
 Comfort.
 ### Heartstopper season 3 (Netflix)
