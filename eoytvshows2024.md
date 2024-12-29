@@ -7,6 +7,7 @@ I watch television in two ways: "appointment TV," which is usually premium TV I 
 
 ## General Observations
 It feels to me like 2024 has been the year of a mini renaissance in network TV. There are far fewer hours for the networks to have to program now due to conceding viewers, ad money and most of the industry to streamers. It also feels like the actors and writers strikes may have had a quantifiable effect. But overall, it feels like after losing ground to streamers over the last few years, producers at the main networks are making a reasonable case for longer season lower budget four quadrant television as a place for some experimentation with the genres and tropes that network TV itself popularized.
+
 On the streamer side, it feels like Netflix continues to churn mediocre television, with the occasional flash of something interesting. Hulu (in some cases FX on Hulu) seems to be making consistently decent television, even if, like AppleTV+, it is critically successful television that may not necessariily find an audience. Disney+ is the only other prominent streamer that seems to have had a good year in my books, mainly in franchise fare. The remaining streamers each seem to have interesting things going on, but no consistent signs of quality, to me at least. My attention has been spread all around.
 
 ## The List
